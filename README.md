@@ -6,3 +6,4 @@
 
  I uhh....I don't have a linktree or a rentry or anything like that sorry chat but I do have [atabook!](https://frostnik.atabook.org/) :3
 
+You should totally check out [Pillar Chase 2](https://www.roblox.com/games/16560655288/Pillar-Chase-2) after they're done recoding it...
